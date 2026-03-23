@@ -1,1 +1,1 @@
-# pw2-atividade-1
+# Mariana Cherobino e Fernanda Gomes
